@@ -1,6 +1,6 @@
 ## Hi I'm Mehdi 👋
 
-computerr science student at EPI sousse
+Computer science student at EPI Sousse
 
 
 ## 🌐 Socials:
